@@ -1,1 +1,0 @@
-# Virtual-assisstant-for-visually-impaired
